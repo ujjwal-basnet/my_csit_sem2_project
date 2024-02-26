@@ -1,2 +1,2 @@
 # my_projects
-this is my college projecets
+this was  my college project 
